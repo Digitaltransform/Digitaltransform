@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Digitaltransform
 - 👀 I’m interested in Write poetry song
-- 🌱 I’m currently learning modernverse machine computing 
+- 🌱 I’m currently dismantle remodel modernverse machine computing 
 - 💞️ I’m looking to collaborate on Jargon.File
 - 📫 How to reach me as Growth hacher task performance greatest dome geek code
 - #2030
